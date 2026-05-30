@@ -99,7 +99,7 @@ If this policy changes materially, we will update the "Last updated" date at the
 If you have questions about this Privacy Policy, please contact:
 
 **Vahid Ghanbarpour**  
-vahidgr.vahid@gmail.com
+vahidgr@yahoo.com
 
 ---
 
